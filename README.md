@@ -12,7 +12,7 @@
 💞️ I’m looking to collaborate on projects that leverage technology for positive change, whether it's in education, healthcare, or environmental sustainability.
 
 
-📫 How to reach me: Feel free to connect with me on GitHub or reach out via email at your.fahimhussain1089@gmail.com
+📫 How to reach me: Feel free to connect with me on GitHub or reach out via email at fahimhussain1089@gmail.com
 
 
 😄 Me
